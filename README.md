@@ -4,4 +4,4 @@
   Quero segurar meu diploma e dar orgulho aos meus pais por quem eles me fizeram ser, 
   entretanto estudo muito e tento não enlouquecer para conquistar meu sonho🇧🇷
   
-  ![](https://tenor.com/pt-BR/view/mr-bean-thumbs-up-gif-13068519828048642244)
+  ![](https://tenor.com/pt-BR/view/morning-happy-tuesday-happy-morning-tuesday-morning-its-tuesday-gif-16751726495338534343)
